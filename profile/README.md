@@ -3,7 +3,7 @@
 ## What is Slots Spin APK?  
 Slots Spin APK is an exciting Android casino game designed for anyone who loves the thrill of online gambling. It offers an engaging mix of virtual slots, fruit machines, and poker machines, blending chance and strategy to create an unforgettable gaming experience. Players can bet, spin, and win with realistic visuals and sound effects. This mobile gaming app brings the vibrant atmosphere of casino games directly to your phone.
 
-## Download Now:😊 [Slots Spin APK](https://heyapks.com/)
+## Download Now:😊 https://heyapks.com/
 
 ### Key Highlights:
 - **Genre**: Casino and gambling game.
